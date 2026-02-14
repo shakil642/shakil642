@@ -3,7 +3,7 @@
 
 Email Me 👉 ✉️ **shakil171208@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
-- 🔭 **I’m currently taking preparation for:** IELTS Academic
+- 🔭 **I’m currently taking preparation for:** Study Abroad
 - 🌱 **I’m currently learning:** Agentic AI
 - 👯 **I’m looking to collaborate on:** AI-related project
 - 💬 **Ask me about:** Collaboration, Tech Support
